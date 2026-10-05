@@ -1,1 +1,0 @@
-# Trendy_kart
